@@ -1,5 +1,5 @@
 
 FAVOURITE BAND
 
- written by SHARON MUINGO
+written by SHARON MUINGO
 
