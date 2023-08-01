@@ -1,7 +1,7 @@
 
 FAVOURITE BAND
 
-project description repository
+project description repository.
 
 written by SHARON MUINGO.
 
