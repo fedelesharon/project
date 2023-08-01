@@ -1,3 +1,3 @@
-FAVOURITE BAND# project
+FAVOURITE BAND
 
 project description repository
