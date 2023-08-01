@@ -1,5 +1,5 @@
 
-FAVOURITE BAND
+FAVOURITE BAND.
 
 project description repository.
 
